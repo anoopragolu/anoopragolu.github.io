@@ -1,2 +1,2 @@
-# niranjani29.github.io
+# anoopragolu.github.io
 My portfolio
